@@ -1,3 +1,8 @@
+![dae7f35dad5957ceb6fd15206cc7644](https://github.com/user-attachments/assets/10be26d1-f04c-40f3-a944-f4a9a4dd9f59)
+葛飾北斎 is the best!!
+(https://www.britishmuseum.org/collection/search?keyword=Katsushika&keyword=Hokusai&keyword=%E8%91%9B%E9%A3%BE%E5%8C%97%E6%96%8E&agent=Katsushika%20Hokusai%20%E8%91%9B%E9%A3%BE%E5%8C%97%E6%96%8E&agent=Art%20Fund&material=paper&technique=painted&view=grid&sort=object_name__asc&page=1)
+check his paintings here☝️
+Also, check the print the printmaking of 川瀬巴水!
 ## Hi there 👋
 
 <!--
